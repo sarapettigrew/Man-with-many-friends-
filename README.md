@@ -1,4 +1,4 @@
-# Man-with-many-friends-
+# SARAH'S ASSAIGNMENT-
 // ---- Man with many friends  ----
 // Converted from original inklewriter URL:
 // https://www.inklewriter.com/stories/241492
